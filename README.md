@@ -5,6 +5,7 @@
 Looking for a way to **boost your trading funds**? Binomo is offering an **exclusive 30% deposit bonus** for all traders who deposit **$60 or more**. This means **more capital, bigger trades, and better profit potential**!  
 
 ---
+<a href="https://binomo-r3.com/en?a=49a253477015&ac=kostya"><img src="https://a.affiliate.top/uploads/b/1689598163_file_08d42deb.png" /></a> 
 
 ## 🛠 How to Claim Your Binomo 30% Deposit Bonus  
 
@@ -45,7 +46,8 @@ Getting your **30% bonus** is easy—no promo code required! Just follow these s
 <li><a href="https://github.com/Checked-Promo-Codes/Unlock-an-Exclusive-50-Deposit-Bonus-on-OlympTrade-">Exclusive 50% Deposit Bonus on OlympTrade</a></li>
 <li><a href="https://github.com/Checked-Promo-Codes/Deriv-s-100-Deposit-Bonus-Fast-Track-Your-Trading-Success-">Deriv’s 100% Deposit Bonus</a></li>
   </ul>
----
+
+<a href="https://binomo-r3.com/en?a=49a253477015&ac=kostya"><img src="https://a.affiliate.top/uploads/b/1656000321_file_7f05d177.jpg" /></a>
 
 ## 📈 Why Trade on Binomo?  
 
