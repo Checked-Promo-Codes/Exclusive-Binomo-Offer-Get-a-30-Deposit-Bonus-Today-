@@ -6,7 +6,7 @@ Looking for a way to **boost your trading funds**? Binomo is offering an **exclu
 
 ---
 <a href="https://binomo-r3.com/en?a=49a253477015&ac=kostya">
-  <img src="https://a.affiliate.top/uploads/b/1689598163_file_08d42deb.png" alt="Binomo Promo Code" title="30 Deposit Bonus" />
+  <img src="https://a.affiliate.top/uploads/b/1689598163_file_08d42deb.png" alt="Binomo 30% Bonus Code" title="30 Deposit Bonus" />
 </a>
 
 ## 🛠 How to Claim Your Binomo 30% Deposit Bonus  
@@ -50,7 +50,7 @@ Getting your **30% bonus** is easy—no promo code required! Just follow these s
   </ul>
 
 <a href="https://binomo-r3.com/en?a=49a253477015&ac=kostya">
-  <img src="https://a.affiliate.top/uploads/b/1656000321_file_7f05d177.jpg" alt="Binomo Promo Code" title="30 Deposit Bonus" />
+  <img src="https://a.affiliate.top/uploads/b/1656000321_file_7f05d177.jpg" alt="Binomo Promo Code" title="Binomo Deposit Bonus" />
 </a>
 
 ## 📈 Why Trade on Binomo?  
