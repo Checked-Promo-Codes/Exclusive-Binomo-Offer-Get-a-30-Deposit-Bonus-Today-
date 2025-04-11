@@ -70,3 +70,9 @@ Binomo is a **trusted trading platform**, offering a **seamless experience** for
 With **Binomo’s 30% deposit bonus**, you can **increase your trading balance instantly** and trade with **greater confidence**. No promo code is needed—just **sign up**, **deposit**, and claim your bonus automatically!
 
 📢 **Don’t miss this opportunity!** Register on **[Binomo](https://smartthriftfinder.com/binomo-kostya)** today and get a **30% deposit bonus** instantly! 🚀  
+<h3>Follow us in Social Media</h3>
+<ul>
+<li><a href="https://github.com/Checked-Promo-Codes">Github</a></li>
+<li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
+<li><a href="https://x.com/pocketoption100">Twitter</a></li>
+</ul>
